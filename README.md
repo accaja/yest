@@ -7,3 +7,7 @@
 ![kmc_20230426_165326](https://user-images.githubusercontent.com/130748953/235292509-6fc0046e-2e0c-4be6-8569-6acdabd4d018.jpg)
 # yest
 Yes
+![IMG-20230429-WA0024](https://user-images.githubusercontent.com/130748953/235306333-62e170cc-05a1-4cd1-a0d1-05e97f7287aa.jpg)
+![IMG-20230429-WA0025](https://user-images.githubusercontent.com/130748953/235306335-ab0c0fe3-221f-41b2-9a14-8449cd7b470f.jpg)
+![IMG-20230429-WA0027](https://user-images.githubusercontent.com/130748953/235306355-753e6f70-33d7-411a-a28a-677571683c0e.jpg)
+![IMG-20230429-WA0028](https://user-images.githubusercontent.com/130748953/235306358-0c794807-4dec-4c4c-895c-4f20b3abb11c.jpg)
